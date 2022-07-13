@@ -115,7 +115,7 @@
 <div align="center">
    
 
-<img src= "https://ibb.co/zP0y1SL" width="250" height="250">
+<img src= "https://i.ibb.co/MP3YbRj/Whats-App-Image-2022-07-13-at-8-13-58-PM.jpg" width="250" height="250">
 
 #### Dean Nortje | u17326622
 

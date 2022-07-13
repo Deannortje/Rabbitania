@@ -115,7 +115,7 @@
 <div align="center">
    
 
-<img src= "https://media-exp3.licdn.com/dms/image/C4D03AQFBmnc5HivYAg/profile-displayphoto-shrink_800_800/0/1618678076273?e=1632355200&v=beta&t=Fz1XGNeeUvsO6Qos8UuPw2ELFsLhzptBis6UqHwp7Ak" width="250" height="250">
+<img src= https://ibb.co/zP0y1SL" width="250" height="250">
 
 #### Dean Nortje | u17326622
 
